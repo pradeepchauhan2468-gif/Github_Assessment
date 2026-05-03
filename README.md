@@ -27,5 +27,16 @@
 
 <img width="1013" height="660" alt="image" src="https://github.com/user-attachments/assets/f88b17b6-69ee-4ccd-ab48-c1185c06384a" />
 
+<img width="1015" height="660" alt="image" src="https://github.com/user-attachments/assets/63c41c25-0e79-4083-a9f3-3e539d6c17a1" />
+
+#Objective: Learn how to manage mistakes and unfinished work.
+
+<img width="1013" height="662" alt="image" src="https://github.com/user-attachments/assets/64ab95cc-980b-4529-acce-5d8f7f847d07" />
+
+<img width="1018" height="665" alt="image" src="https://github.com/user-attachments/assets/644ac1ca-db00-482d-86bf-0b72959e782f" />
+
+
+
+
 
 
